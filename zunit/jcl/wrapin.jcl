@@ -1,1 +1,10 @@
-\@æ@@@¨@@\@@¤@÷ò@@£¤@@¤@ñK\@a¤¢aa¢£¢aõöðaÄÅÆÉÕÅ@×É×ÅÓÉÕÅMÁéä×É×Å]@@@@@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@ÑâÖÕ@`Ñ¥@×¥@×]@@@@@@@âãÁãäâMÅÕÁÂÓÅÄ]@@@@@@@ÃÖÕÆÉÇÆÉÓÅMa¤¢aa¢£¢aõöða@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\¢¢a¢a¢¥¥K§]@@@@@@@âÈÅÓÆMa¥a¢£¢]@@@@@@@æâÄÉÙMa¤¢aaÉÂÔa©aa¦¢]
+* Wrap a line by placing * in column 72 and continue in column 1.
+* /usr/lpp/cicsts/dfh560/
+DEFINE PIPELINE(AZUPIPE)                GROUP(AZUGROUP)
+       DESCRIPTION(zUnit JSON non-Java Provider Pipeline)
+       STATUS(ENABLED)
+       CONFIGFILE(/usr/lpp/cicsts/dfh560/                              *
+samples/pipelines/jsonnonjavaprovid.xml)
+       SHELF(/var/cicsts)
+       WSDIR(/usr/lpp/IBM/idz/lib/wsbind)
+

@@ -1,1 +1,78 @@
-aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\@Ó¢@£¢@`@×£¨@@ÉÂÔ@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@õ÷òô`ãð÷@Ã¨£@ÉÂÔ@ÃK@òðñøk@òðòð@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@Á@£¢@¢¥@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@äâ@Ç¥£@¤¢¢@¢££@£¢@@`@@ä¢k@¤£@@@@@@\aa\@¢¢¤@¢££@¨@ÇâÁ@ÁÄ×@¢¤@££@¦£@ÉÂÔ@ÃK@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@©aÖâ@Å§@Å§£¢¢@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@É¤@@£@£©@£¢@@£@¢K@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@Ã¤¢£©@£¢@@£@£@¨¤@¢£@¤£¢K@@@@@@@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@ñ]@Ô¨@£@¥¤¢@£@£@@¥@¤¢@@¨¤@@@@@@@@@\aa\@@@@¢k@¢@£@@£@£¢@@@¥K@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@Õ£M¢]z@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@ñK@ã@ÅÓÁçÆ\@@Áéäéä\@×ÙÖÃ@¢@¤@£¢@k@¢@@@@@\aa\@@@@¢¤@£@@@¤@¨@ÑÅâk@@§@¨@@@@@@@@\aa\@@@@£@@@£@¢@¨K@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\aa\@×ÙÖÄäÃã@ÄÁãÁ@âÅãâaa\aa\@ÈÓØ@@©aÖâ@Å§@Å§£¢¢@MÆÔÉÄ@ÈÈÖ×§§§]k@¤£@ÆÅÓaa\@Ó£¢£@å¢@ÆÅÓKåñõÙðÔðaa@âÅã@ÆÅÓ~}ÆÅÓKåñõÙðÔð}aa\@ÈÓØ@@Ä¨@ã¢£@Ù¤@MÆÔÉÄ@ÈÁÓö§§§]k@¤£@Âéäaa\@Ó£¢£@å¢@ÂéäKåñÙðÔðaa@âÅã@Âéä~}ÂéäKåñÙðÔð}aa\@ÈÓØ@@©aÖâ@Ä¤@MÆÔÉÄ@ÈÁÄÙ§§§]k@¤£@ÅØÁæaa@âÅã@ÅØÁ~}ÅØÁæ}aa\@ÈÓØ@@ÁÄÆ©@Ã@Ã£¢@MÆÔÉÄ@ÈåæÙ§§§]k@¤£@É×åaa\@Ó£¢£@å¢@É×åKåñÙøÔðaa@âÅã@É×å~}É×åKåñÙøÔð}aa\aa\@ÃÖÔ×ÉÓÅÙ@ÄÁãÁ@âÅãâaa\aa\@ÈÓØ@@ÃÖÂÖÓk@¤£@ÉÇèKåöÙóÔðaa@âÅã@ÉÇè~}ÉÇèKåöÙóÔð}aa\@ÈÓØ@@×ÓaÉk@¤£@×ÓÉKåñÙñÔñaa@âÅã@ÉÂÔé~}×ÓÉKåñÙñÔñ}aa\@ÈÓØ@@ÃaÃNNk@¤£@ÃÂÃaa@âÅã@ÃÃÕ~}ÃÂÃ}aa\aa\@äãÉÓÉãè@ÄÁãÁ@âÅãâaa\aa\@ÈÓØ@@Ó¤@Å¥£@MÓÅ]k@¤£@ÃÅÅaa@âÅã@ÃÅÅ~}ÃÅÅ}aa\@ÈÓØ@@çÔÓ@ã£@@©aÖâk@¤£@âèâñaa@âÅã@ÉçÔ~}âèâñ}aa\aa\@âäÂâèâãÅÔ@ÄÁãÁ@âÅãâaa\aa\@ÈÓØ@@ÃÉÃâ@ãâk@¤£@ÄÆÈKåõÙöÔðaa@âÅã@ÄÆÈ~}ÄÆÈKåõÙöÔð}aa\@ÈÓØ@@ÄÂòk@¤£@ÄâÕÁñòaa@âÅã@ÄâÕ~}ÄâÕKåñòÙñÔð}aa\@ÄâÕ@@ÄÂò@ÙäÕÓÉÂk@¤£@ÄâÕÁñòKÙäÕÓÉÂKÓÖÁÄaa@âÅã@ÄâÕÙäÕ~}ÄâÕñòñKÙäÕÓÉÂKÓÖÁÄ}aa\@ÈÓØ@@¤¢£©@ÉÔâ@ÙÅâÓÉÂk@¤£@ÉÔâaa@âÅã@ÄÆâÙÅâÓ~}ÉÔâ}aa\@ÈÓØ@@¤¢£©@ÉÔâ@ÙÅÆÅÙÁÓk@¤£@ÉÔâaa@âÅã@ÄÆâÙÅÆÅÙ~}ÉÔâ}aa\@ÈÓØ@@¤¢£©@ÉÔâ@×ÙÖÃÓÉÂk@¤£@ÉÔâaa@âÅã@ÄÆâ×ÙÖÃ~}ÉÔâ}aa\aa\@âèâãÅÔ@ÄÁãÁ@âÅãâaa\aa\@ÈÓØ@@âèâñKÓÉÕÒÓÉÂk@¢¨¢£@¤££¢k@¤£@âèâñaa@âÅã@ÓÉÕÒÓÉÂ~}âèâñ}aa\@ÈÓØ@@âèâñKÔÁÃÓÉÂk@¢¢@¢k@¤£@âèâñaa@âÅã@ÔÁÃÓÉÂ~}âèâñ}aa\@ÈÓØ@@âèâñKÃââÓÉÂk@@¢¨¢£@¢¥k@¤£@âèâñaa@âÅã@ÃââÓÉÂ~}âèâñ}aa\
+//*********************************************************************
+//* Licensed materials - Property of IBM                              *
+//* 5724-T07 Copyright IBM Corp. 2018, 2020                           *
+//* All rights reserved                                               *
+//* US Government users restricted rights  -  Use, duplication or     *
+//* disclosure restricted by GSA ADP schedule contract with IBM Corp. *
+//*                                                                   *
+//* z/OS Explorer Extensions                                          *
+//* Include member to centralize definitions of other libraries.      *
+//*                                                                   *
+//*                                                                   *
+//* Customize this member to match your site requirements.            *
+//*                                                                   *
+//* 1) Modify the values to the high level qualifiers of your         *
+//*    libraries, as indicated in the comments of each variable.      *
+//*                                                                   *
+//* Note(s):                                                          *
+//*                                                                   *
+//* 1. The ELAXF* and AZUZU* PROC members include this member, so     *
+//*    ensure it can be found by JES, for example by keeping all      *
+//*    the member in the same library.                                *
+//*                                                                   *
+//*********************************************************************
+//*
+//* PRODUCT DATA SETS
+//*
+//* HLQ for z/OS Explorer Extensions (FMID HHOPxxx), default FEL
+//* Latest Version FEL.V15R0M0
+// SET FEL='FEL.V15R0M0'
+//* HLQ for Dynamic Test Runner (FMID HAL6xxx), default BZU
+//* Latest Version BZU.V1R0M0
+// SET BZU='BZU.V1R0M0'
+//* HLQ for z/OS Debugger (FMID HADRxxx), default EQAW
+// SET EQA='EQAW'
+//* HLQ for ADFz Common Components (FMID HVWRxxx), default IPV
+//* Latest Version IPV.V1R8M0
+// SET IPV='IPV.V1R8M0'
+//*
+//* COMPILER DATA SETS
+//*
+//* HLQ for COBOL, default IGY.V6R3M0
+// SET IGY='IGY.V6R3M0'
+//* HLQ for PL/I, default PLI.V1R1M1
+// SET IBMZ='PLI.V1R1M1'
+//* HLQ for C/C++, default CBC
+// SET CCN='CBC'
+//*
+//* UTILITY DATA SETS
+//*
+//* HLQ for Language Environment (LE), default CEE
+// SET CEE='CEE'
+//* HLQ for XML Toolkit for z/OS, default SYS1
+// SET IXM='SYS1'
+//*
+//* SUBSYSTEM DATA SETS
+//*
+//* HLQ for CICS TS, default DFH.V5R6M0
+// SET DFH='DFH.V5R6M0'
+//* HLQ for DB2, default DSNA12
+// SET DSN='DSN.V12R1M0'
+//* DSN for DB2 RUNLIB, default DSNA12.RUNLIB.LOAD
+// SET DSNRUN='DSN121.RUNLIB.LOAD'
+//* HLQ for customized IMS RESLIB, default IMS
+// SET DFSRESL='IMS'
+//* HLQ for customized IMS REFERAL, default IMS
+// SET DFSREFER='IMS'
+//* HLQ for customized IMS PROCLIB, default IMS
+// SET DFSPROC='IMS'
+//*
+//* SYSTEM DATA SETS
+//*
+//* HLQ for SYS1.LINKLIB, system utilities, default SYS1
+// SET LINKLIB='SYS1'
+//* HLQ for SYS1.MACLIB, assembler macros, default SYS1
+// SET MACLIB='SYS1'
+//* HLQ for SYS1.CSSLIB, callable system service, default SYS1
+// SET CSSLIB='SYS1'
+//*

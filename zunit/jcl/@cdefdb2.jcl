@@ -1,1 +1,26 @@
-aaÙÁèÁÃâÄ@ÑÖÂ@òôñùðñk}ÃâÄ@ÇÅÕÅÙÁãÅ}kÕÖãÉÆè~PâèâäÉÄkÃÓÁââ~ÁkÔâÇÃÓÁââ~Èaa\\\\\aa@âÅã@ÈÓØ~ÙÓÁÔKéäÕÉãaa@âÅã@ÃÉÃâÈÓØ~ÄÆÈKåõÙöÔðKÃÉÃâaa\\\\\@ÃâÄ@£¢@@©Ô@È£@Ã@Áaa\\\\\aaÃâÄÄÅÆâ@@ÅçÅÃ@×ÇÔ~ÄÆÈÃâÄä×kÙÅÇÉÖÕ~ñÔaaâãÅ×ÓÉÂ@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÓÖÁÄaaÄÆÈÃâÄ@@@ÄÄ@ÄâÕ~ÃÉÃâõöKÃÉÃâðñKÄÆÈÃâÄkÄÉâ×~âÈÙaaâèâäãñ@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MñðòôkMñððkñðð]]aaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aaâèâÉÕ@@@@ÄÄ@\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\@ÄÂò@Á£££Ä@ÄÂòÃMÄâÕé]@@@@@Ç¤MÈÃÁéÔÖÂÓ]@@ÄÂòÉÄMÄÂÃñ]@@@@@@@ÕÖÕ£MÕ]@@@@Ù¢¨ÔMÕ]@@@@@@@ÔâÇ¤¤ñMÃâÔã]@@@â££¢Ø¤¤MÃâÔã]@@@@@@@ãÃÂ£Môðð]@@@@@ãÅMÁ]@@@@@@@Á¤£ÙMã§]@@Á¤£ã¨Mä¢]@@@@@@@ÄMè¢]@@@@ãÓ£Mòõð]\\\\\@ÄÂò@Å£¨@¢¤£¢@óò÷ð@£¢£¢@@ÑâÖÕ@¢¥¢Ä@ÄÂòÅ£¨MÄÂÂÇÑâÕ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@ã¢MÈÃ\]@@@@@@@Á¤£MÉÂÔäâÅÙ]@@@@@Á¤£ÙMã§]@@@@@@@×MÈÃé×ÓÁÕ]@@@@@ãÓ£Mòõð]
+//RAYACSD JOB 241901,'CSD GENERATE',NOTIFY=&SYSUID,CLASS=A,MSGCLASS=H
+//*****
+// SET HLQ=RLAM.ZUNIT
+// SET CICSHLQ=DFH.V5R6M0.CICS
+//***** CSD definitions for zMobile Health Care App
+//*****
+//CSDDEFS  EXEC PGM=DFHCSDUP,REGION=1M
+//STEPLIB  DD DISP=SHR,DSN=&CICSHLQ..SDFHLOAD
+//DFHCSD   DD DSN=CICS56.CICS01.DFHCSD,DISP=SHR
+//SYSUT1   DD UNIT=SYSDA,SPACE=(1024,(100,100))
+//SYSPRINT DD SYSOUT=*
+//SYSIN    DD *
+**********************************************************
+
+***** DB2 Attachment
+Define DB2Conn(DSNZ)     Group(HCAZMOBL)  DB2ID(DBC1)
+       NONtermrel(No)    ResyncMember(No)
+       MSGqueue1(CSMT)   StatsQueue(CSMT)
+       TCBlimit(400)     ThreadError(Abend)
+       AccountRec(Txid)  AuthType(Userid)
+       Drollback(Yes)    ThreadLimit(250)
+
+***** DB2 Entry supports 3270 transactions and JSON services
+Define DB2Entry(DBBGJSN) Group(HCAZMOBL)      Transid(HC*)
+       Authid(IBMUSER)     AccountRec(Txid)
+       Plan(HCZPLAN)     ThreadLimit(250)

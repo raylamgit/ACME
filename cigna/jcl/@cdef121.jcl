@@ -1,1 +1,157 @@
-aaÙÁèÁÃâÄ@ÑÖÂ@òôñùðñk}ÃâÄ@ÇÅÕÅÙÁãÅ}kÕÖãÉÆè~PâèâäÉÄkÃÓÁââ~ÁkÔâÇÃÓÁââ~Èaa\aa\\\\\aa@âÅã@ÈÓØ~ÙÓÁÔKéäÕÉãaa@âÅã@ÃÉÃâÈÓØ~ÄÆÈKåõÙöÔðKÃÉÃâaa\\\\\@ÃâÄ@£¢@@©Ô@È£@Ã@Áaa\\\\\aaÃâÄÄÅÆâ@@ÅçÅÃ@×ÇÔ~ÄÆÈÃâÄä×kÙÅÇÉÖÕ~ñÔaaâãÅ×ÓÉÂ@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÓÖÁÄaaÄÆÈÃâÄ@@@ÄÄ@ÄâÕ~ÃÉÃâõöKÃÉÃâðñKÄÆÈÃâÄkÄÉâ×~âÈÙaaâèâäãñ@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MñðòôkMñððkñðð]]aaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aaâèâÉÕ@@@@ÄÄ@\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\Ù¥@Ç¤MÈÃÁéÔÖÂÓ]@@Ó¢£MÈÃÁéÓÉâã]\Ä£@Ç¤MÈÃÁéÔÖÂÓ]@@Á\Á@@@@Ç¤MÈÃÁéÔÖÂÓ]@@@Ó¢£MÈÃÁéÓÉâã]\\\\\\\\\\\\@ã¢£¢Ä@ã¢£MÈÃÁé]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃÁéÔÅÕä]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃ×Á]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃ×ñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃ×ñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃ×ñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃÔÁ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃÔÁ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃÔñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃÔñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃåÁ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃåñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃåñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃåñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃãÁ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃãñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]Ä@ã¢£MÈÃãñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÈÃãñ×Óðñ]@ã¢Ä£ÓMÁ¨]@@@ã¢Ä£Ò¨Mä¢]\\\\\@Ã¨@@Ã×ÉÈk@¤£@Èãã×@É¤@Ù¤£@ã¢£Ä@ã¢£MÈÃÑæ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@×MÄÆÈ×ÉÄâÈ]@ã¢Ä£ÓMÁ¨]@@@â¤MèÅâ]\\\\\@×¢Ä@×MÈÃÔÁ×â]@@@@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÂÔâ@Ô]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁéÔÅÕä]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÔ@¤]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃ×ñ×Óðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£M×££@×¢££@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃ×ñÂÁðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÁ@×££@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃ×ñÂÉðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÉ@×££@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃ×ÙÅâãæ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£M×££@ÙÅâã@æ]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁ×ÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@×££]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁ×ÄÂðò]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@ä¢]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÉ×ÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@É@×££]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔñ×Óðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÉ@Ô£@×¢££@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔñÂÉðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÉ@Ô£@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔÙÅâãæ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÔ£@ÙÅâã@æ]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÉÔÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@É@Ô£]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔÁ×Óðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÁ@Ô£@×¢££@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔÁÂÁðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÁ@Ô£@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔÁÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@Ô£]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÔÁÄÂðò]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@×¢£]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃåñ×Óðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£Må¢£@×¢££@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃåñÂÁðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÁ@å¢£@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃåñÂÉðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÉ@å¢£@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁåÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@å¢£]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÉåÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@É@å¢£]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃãñ×Óðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£Mã¢@×¢££@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃãñÂÁðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÁ@ã¢@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃãñÂÉðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÉ@ã¢@Â¤¢¢¢@Ó]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃãÙÅâãæ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£Mã¢@ÙÅâã@æ]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁãÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@Á@ã¢]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÉãÄÂðñ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÄÂò@É@ã¢]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]Ä@×MÈÃÁéÅÙÙâ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÅ@Ô¢¢@¤£¤£@£@ãâØ¤¤]@@@@@@@Ó¤MÃ]@@@Ä£Ó£MÁ¨]@@@Å§¨Mä¢]\\\\\@×Ä@×MÈÃÁéÔÖÂÓ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÑ¢@×@@£@ÈÃ@éÔÖÂÉÓÅ@Á£]@@@@@@@ÃMa¤a©aa©¢¥K§]@@@@@@@âMa¥a¢£¢]@@@@@@@æâÄMa¤a©a¦¢¥¢a¦¢]\\\\\@ãÃ×É×@â¥Ä@ãÃ×É×â¥MÈÃÁéÔÖÂÓ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£Mã@â¥@@£@ÈÃ@éÔÖÂÉÓÅ@Á£]@@@@@@@×£¤Möôøô]@@äÙÔMÄÆÈæÂÁÁç]@@@@@@@×£MÈãã×]@@@@@@@ã¢£MÃæçÕ]@ÂMñ]\\\\\@ÑåÔ@â¥Ä@ÑåÔâ¥MÈÃÁéÑåÔ]@Ç¤MÈÃÁéÔÖÂÓ]@@@@@@@Ä¢£MÃÉÃâ@¥¢¥@£@¤@£@ÈÃ@éÔÖÂÉÓÅ@Á£]@@@@@@@Ñ¥MÄÆÈÑåÔÁç]
+//RAYACSD JOB 241901,'CSD GENERATE',NOTIFY=&SYSUID,CLASS=A,MSGCLASS=H
+//*
+//*****
+// SET HLQ=RLAM.ZUNIT
+// SET CICSHLQ=DFH.V5R6M0.CICS
+//***** CSD definitions for zMobile Health Care App
+//*****
+//CSDDEFS  EXEC PGM=DFHCSDUP,REGION=1M
+//STEPLIB  DD DISP=SHR,DSN=&CICSHLQ..SDFHLOAD
+//DFHCSD   DD DSN=CICS56.CICS01.DFHCSD,DISP=SHR
+//SYSUT1   DD UNIT=SYSDA,SPACE=(1024,(100,100))
+//SYSPRINT DD SYSOUT=*
+//SYSIN    DD *
+**********************************************************
+*Remove Group(HCAZMOBL)  List(HCAZLIST)
+*Delete Group(HCAZMOBL)  All
+*
+Add    Group(HCAZMOBL)   List(HCAZLIST)
+*******
+
+***** Transactions
+Define Transaction(HCAZ) Group(HCAZMOBL)
+       Program(HCAZMENU) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCPA) Group(HCAZMOBL)
+       Program(HCP1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCP1) Group(HCAZMOBL)
+       Program(HCP1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCMA) Group(HCAZMOBL)
+       Program(HCMAPL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCM1) Group(HCAZMOBL)
+       Program(HCM1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCVA) Group(HCAZMOBL)
+       Program(HCV1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCV1) Group(HCAZMOBL)
+       Program(HCV1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCTA) Group(HCAZMOBL)
+       Program(HCT1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+Define Transaction(HCT1) Group(HCAZMOBL)
+       Program(HCT1PL01) TaskDataLoc(Any)   TaskDataKey(User)
+
+***** Copy of CPIH, default HTTP Inbound Router Transaction
+Define Transaction(HCJW) Group(HCAZMOBL)
+       Program(DFHPIDSH) TaskDataLoc(Any)   Spurge(YES)
+
+***** Programs
+Define Program(HCMAPS)    Group(HCAZMOBL)
+       Description(BMS Map)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCAZMENU) Group(HCAZMOBL)
+       Description(Main menu)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCP1PL01) Group(HCAZMOBL)
+       Description(Patient Presentation Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCP1BA01) Group(HCAZMOBL)
+       Description(Add Patient Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCP1BI01) Group(HCAZMOBL)
+       Description(Inq Patient Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCPRESTW) Group(HCAZMOBL)
+       Description(Patient REST Wrapper)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCAPDB01) Group(HCAZMOBL)
+       Description(DB2 Add Patient)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCAPDB02) Group(HCAZMOBL)
+       Description(DB2 Add User)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCIPDB01) Group(HCAZMOBL)
+       Description(DB2 Inq Patient)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCM1PL01) Group(HCAZMOBL)
+       Description(Inq Medication Presentation Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCM1BI01) Group(HCAZMOBL)
+       Description(Inq Medication Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCMRESTW) Group(HCAZMOBL)
+       Description(Medication REST Wrapper)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCIMDB01) Group(HCAZMOBL)
+       Description(DB2 Inq Medication)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCMAPL01) Group(HCAZMOBL)
+       Description(Add Medication Presentation Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCMABA01) Group(HCAZMOBL)
+       Description(Add Medication Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCMADB01) Group(HCAZMOBL)
+       Description(DB2 Add Medication)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCMADB02) Group(HCAZMOBL)
+       Description(DB2 Add Prescription)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCV1PL01) Group(HCAZMOBL)
+       Description(Visit Presentation Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCV1BA01) Group(HCAZMOBL)
+       Description(Add Visit Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCV1BI01) Group(HCAZMOBL)
+       Description(Inq Visit Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCAVDB01) Group(HCAZMOBL)
+       Description(DB2 Add Visit)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCIVDB01) Group(HCAZMOBL)
+       Description(DB2 Inq Visit)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCT1PL01) Group(HCAZMOBL)
+       Description(Threshold Presentation Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCT1BA01) Group(HCAZMOBL)
+       Description(Add Threshold Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCT1BI01) Group(HCAZMOBL)
+       Description(Inq Threshold Business Logic)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCTRESTW) Group(HCAZMOBL)
+       Description(Threshold REST Wrapper)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCATDB01) Group(HCAZMOBL)
+       Description(DB2 Add Threshold)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+Define Program(HCITDB01) Group(HCAZMOBL)
+       Description(DB2 Inq Threshold)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+Define Program(HCAZERRS) Group(HCAZMOBL)
+       Description(Error Message output to TSQueue)
+       Language(Cobol)   DataLocation(Any)   Execkey(User)
+
+***** Pipeline
+Define Pipeline(HCAZMOBL) Group(HCAZMOBL)
+       Description(Json Pipeline for the HC ZMOBILE Application)
+       Configfile(/u/zmobile/pipeline/zmobilejsonprovider.xml)
+       Shelf(/var/cicsts)
+       WSDir(/u/zmobile/webservices/wsbind)
+
+***** TCPIP Service
+Define TCPIPService(HCAZMOBL) Group(HCAZMOBL)
+       Description(Tcpip Service for the HC ZMOBILE Application)
+       Portnumber(6484)  URM(DFHWBAAX)       Protocol(HTTP)
+       Transaction(CWXN) Backlog(1)
+
+***** JVM Server
+Define JVMServer(HCAZJVM) Group(HCAZMOBL)
+       Description(CICS jvmserver to run the HC ZMOBILE Application)
+       Jvmprofile(DFHJVMAX)

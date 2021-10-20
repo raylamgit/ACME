@@ -1,1 +1,118 @@
-aaÙÓÁÔÂéäâ@ÑÖÂ@ÔâÇÃÓÁââ~çkÙÅÇÉÖÕ~ðÔkaa@@@@@ÕÖãÉÆè~ÙÓÁÔaa\ÂéäâÅãä×@ÑÖÂ@L@£¢naa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\@Ó¢@£¢@`@×£¨@@ÉÂÔaa\@õöõõ`ÁÃõ@õ÷òô`ãð÷@õ÷ó÷`Ñóñ@Ã¨£@ÉÂÔ@ÃK@òðñùk@òðñùaa\@Á@£¢@¢¥aa\@äâ@Ç¥£@¤¢¢@¢££@£¢@@`@@ä¢k@¤£@aa\@¢¢¤@¢££@¨@ÇâÁ@ÁÄ×@¢¤@££@¦£@ÉÂÔ@ÃKaa\aa\@ÉÂÔ@©aÖâ@Ä¨@ã¢£@Ù¤aa\@ã¢@ÑÃÓ@£¢@@¤£¢@£@¢£¢@¤¢aa\@@£@¤£@@£@¤£Kaa\aa\aa\@Ù@£@£@££@@£¢@£@@@£¢@@¦£aa\@£¢@ÑÃÓ@£¢@@¢Kaa\aa\aa\@ÃÁäãÉÖÕz@ã¢@¢@£@@ÑÃÓ@¤@@@£@Kaa\@Â@¤¢@£¢@@¢£k@¨¤@¦@¥@£@@£@¦aa\@£¢zaa\aa\@ñ]@Á@£@@£¢@£@£@¨¤@¢¨¢£@¤£¢Kaa\aa\@ò]@×¥k@@¥@ÈÓØk@£@`¥@¤M¢]@@£aa\@@@@¤£@¢£@M¤£@¢@Âéä]Kaa\aa\@ó]@×¥k@@¥@Ãäâãk@£@`¥@¤M¢]@@£aa\@@@@¤¢£©@¤£@£@¢£¢@M¤£@¢@ÂéäK{Ãäâã]Kaa\aa\@ô]@×¥k@@¥@ÄÉâ×k@£@£@¢¢£@@£aa\@@@@¤¢£©@¤£@£@¢£¢@M¤£@ÕÅæ]Kaa\aa\@õ]@É@¨¤@@£@¦£@£@£@¢£¢@£@@âÔâ@k@¨¤@¤¢£zaa\@@@@]@×¥k@@¥@åÖÓâÅÙk@£@¥¤@@£aa\@@@@@@@¤¢£©@¤£@¢@M£@¢@@¤£]Kaa\@@@@]@ä£@@¢@¦£@£@åÖÓâÅÙ@¨¦K@É£@¤¢aa\@@@@@@@@£@@@âÅã@¢£££¢@@@£@ÃÖ×è@¤Kaa\aa\@Õ£M¢]zaa\aa\@ñK@ã¢@@¢¤@£@¦£@@£¤@@ðKaa\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\aa\@ÑÖÂ@ÄÅãÁÉÓâaa\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\aa\@Á@¢£¢@¦@£@PÃäâãKKPÓÓØ@@¨@@£@¢£@¢aa\@@PÂéäKKâÂéäâÁÔ×K@Ù@£@£@£@¢£¢@@@£¢Kaa\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\aa\@ÔÉÇÙÁãÉÖÕ@ÕÖãÅâaa\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\aa@@@@@@@@@âÅã@ÈÓØ~ÂéäKåñÙðÔðaa@@@@@@@@@âÅã@Ãäâã~ÂéäK{Ãäâãaa@@@@@@@@@âÅã@ÄÉâ×~ÕÅæaa@@@@@@@@@âÅã@åÖÓâÅÙ~ã÷ñññòaa\aa\@Ôåâ@ÃÖ×è@×ÙÖÃÅÄäÙÅaa\aaÃÖ×è@@@@@×ÙÖÃ@ÙÅÃÓ~øðkaa@@@@@@@@@@@@âÙÃ~âÂéäâÁÔ×kaa@@@@@@@@@@@@â×ÁÃÅ~kaa@@@@@@@@@@@@ÓÓØ~ÓÓØaa\aaÃÖ×è@@@@@ÅçÅÃ@×ÇÔ~ÉÅÂÃÖ×èkÙÅÇÉÖÕ~ðÔkãÉÔÅ~ÕÖÓÉÔÉãaaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aaâèâäãñ@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÈÓØKKPâÙÃaaâèâäãò@@@ÄÄ@ÄâÕ~PÃäâãKKPÓÓØkaa@@@@@@@@@@@@ÄÉâ×~MPÄÉâ×kÃÁãÓÇkÄÅÓÅãÅ]kaa@@@@@@@@@@@@ÄâÕãè×Å~ÓÉÂÙÁÙèkaa@@@@@@@@@@@@ÂÓÒâÉéÅ~ðkaa@@@@@@@@@@@@ÙÅÃÆÔ~ÆÂkaa@@@@@@@@@@@@ÓÙÅÃÓ~PÙÅÃÓkaa@@@@@@@@@@@@äÕÉã~âèâÁÓÓÄÁkaa@@@@@@@@@@@@åÖÓ~âÅÙ~PåÖÓâÅÙkaa@@@@@@@@@@@@â×ÁÃÅ~Pâ×ÁÃÅaaâèâÉÕ@@@@ÄÄ@ÄäÔÔèaaÅÃÖ×è@@@@×ÅÕÄaa\aa\@ÃÖ×è@Ôåâ@ÃäâãÖÔÉéÁãÉÖÕ@ÆÉÓÅâaa\aaÃÖÕÆÉÇ@@@ÅçÅÃ@×ÙÖÃ~ÃÖ×èkÓÓØ~ÃÖÕÆÉÇkâ×ÁÃÅ~MãÙÒkMñkõkñð]]aaâèâÉÕ@@@@ÄÄ@\@@@@ÃÖ×è@ÖäãÄÄ~âèâäãòkÉÕÄÄ~MMâèâäãñkÙ]]@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÓÅÖ×ãaaÑÃÓ@@@@@@ÅçÅÃ@×ÙÖÃ~ÃÖ×èkÓÓØ~ÑÃÓkâ×ÁÃÅ~MãÙÒkMñðkõkñð]]aaâèâÉÕ@@@@ÄÄ@\@@@@ÃÖ×è@ÖäãÄÄ~âèâäãòkÉÕÄÄ~MMâèâäãñkÙ]]@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÁÓÓÖÃ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÃâÄ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÙÁÃÆ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäâÅãä×@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäåÙÔ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäåâÁÔaa×ÙÖÃÓÉÂ@@ÅçÅÃ@×ÙÖÃ~ÃÖ×èkÓÓØ~×ÙÖÃÓÉÂkâ×ÁÃÅ~MãÙÒkMõkõkñð]]aaâèâÉÕ@@@@ÄÄ@\@@@@ÃÖ×è@ÖäãÄÄ~âèâäãòkÉÕÄÄ~MMâèâäãñkÙ]]@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÉÕÃÓ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä×ÂÃ×@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä×ÄÃ×@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä×ÄÓÉ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä×ÅÃ×@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä×ÔÃ×@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~Âéä××ÓÁèaaçÔÓ@@@@@@ÅçÅÃ@×ÙÖÃ~ÃÖ×èkÓÓØ~çÔÓkâ×ÁÃÅ~MãÙÒkMòkõkñ]]aaâèâÉÕ@@@@ÄÄ@\@@@@ÃÖ×è@ÖäãÄÄ~âèâäãòkÉÕÄÄ~MMâèâäãñkÙ]]@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÃÂÃÂÓ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäÃÂ×Óñ@@@@âÅÓÅÃã@ÔÅÔÂÅÙ~ÂéäâÃÆÇaa\
+//RLAMBZUS JOB MSGCLASS=X,REGION=0M,
+//     NOTIFY=RLAM
+//*BZUSETUP JOB <job parameters>
+//*********************************************************************
+//* Licensed materials - Property of IBM
+//* 5655-AC5 5724-T07 5737-J31 Copyright IBM Corp. 2019, 2019
+//* All rights reserved
+//* US Government users restricted rights  -  Use, duplication or
+//* disclosure restricted by GSA ADP schedule contract with IBM Corp.
+//*
+//* IBM z/OS Dynamic Test Runner
+//* This JCL creates and populates data sets used
+//* for the configuration of the product.
+//*
+//*
+//* Refer to the bottom of this comment block for details on what
+//* this JCL creates and copies.
+//*
+//*
+//* CAUTION: This is neither a JCL procedure nor a complete job.
+//* Before using this job step, you will have to make the following
+//* modifications:
+//*
+//* 1) Add the job parameters to meet your system requirements.
+//*
+//* 2) Provide, in variable HLQ, the high-level qualifier(s) of the
+//*    product install (default is BZU).
+//*
+//* 3) Provide, in variable CUST, the high-level qualifier(s) for the
+//*    customized configuration data sets (default is BZU.#CUST).
+//*
+//* 4) Provide, in variable DISP, the allocation disposition for the
+//*    customized configuration data sets (default NEW).
+//*
+//* 5) If you do not want the data sets to be SMS managed, you must:
+//*    a) Provide, in variable VOLSER, the volume for the
+//*       customized configuration files (there is no default).
+//*    b) Uncomment all lines with the VOLSER keyword. It occurs
+//*       in the block of SET statements and in the COPY procedure.
+//*
+//* Note(s):
+//*
+//* 1. This job should complete with a return code 0.
+//*
+//*********************************************************************
+//*
+//* JOB DETAILS
+//*
+//*********************************************************************
+//*
+//* All steps will create &CUST..&LLQ and copy in the listed members
+//* from &BZU..SBZUSAMP. Refer to the different steps for more details.
+//*
+//*********************************************************************
+//*
+//* MIGRATION NOTES
+//*
+//*********************************************************************
+//*
+//         SET HLQ=BZU.V1R0M0
+//         SET CUST=BZU.#CUST
+//         SET DISP=NEW
+//         SET VOLSER=T71112
+//*
+//* MVS COPY PROCEDURE
+//*
+//COPY     PROC RECL=80,
+//            SRC=SBZUSAMP,
+//            SPACE=,
+//            LLQ=LLQ
+//*
+//COPY     EXEC PGM=IEBCOPY,REGION=0M,TIME=NOLIMIT
+//SYSPRINT DD SYSOUT=*
+//SYSUT1   DD DISP=SHR,DSN=&HLQ..&SRC
+//SYSUT2   DD DSN=&CUST..&LLQ,
+//            DISP=(&DISP,CATLG,DELETE),
+//            DSNTYPE=LIBRARY,
+//            BLKSIZE=0,
+//            RECFM=FB,
+//            LRECL=&RECL,
+//            UNIT=SYSALLDA,
+//            VOL=SER=&VOLSER,
+//            SPACE=&SPACE
+//SYSIN    DD DUMMY
+//ECOPY    PEND
+//*
+//* COPY MVS CUSTOMIZATION FILES
+//*
+//CONFIG   EXEC PROC=COPY,LLQ=CONFIG,SPACE=(TRK,(1,5,10))
+//SYSIN    DD *
+    COPY OUTDD=SYSUT2,INDD=((SYSUT1,R))
+    SELECT MEMBER=BZULEOPT
+//JCL      EXEC PROC=COPY,LLQ=JCL,SPACE=(TRK,(10,5,10))
+//SYSIN    DD *
+    COPY OUTDD=SYSUT2,INDD=((SYSUT1,R))
+    SELECT MEMBER=BZUALLOC
+    SELECT MEMBER=BZUCSD
+    SELECT MEMBER=BZURACF
+    SELECT MEMBER=BZUSETUP
+    SELECT MEMBER=BZUVRM
+    SELECT MEMBER=BZUVSAM
+//PROCLIB  EXEC PROC=COPY,LLQ=PROCLIB,SPACE=(TRK,(5,5,10))
+//SYSIN    DD *
+    COPY OUTDD=SYSUT2,INDD=((SYSUT1,R))
+    SELECT MEMBER=BZUINCL
+    SELECT MEMBER=BZUPBCP
+    SELECT MEMBER=BZUPDCP
+    SELECT MEMBER=BZUPDLI
+    SELECT MEMBER=BZUPECP
+    SELECT MEMBER=BZUPMCP
+    SELECT MEMBER=BZUPPLAY
+//XML      EXEC PROC=COPY,LLQ=XML,SPACE=(TRK,(2,5,1))
+//SYSIN    DD *
+    COPY OUTDD=SYSUT2,INDD=((SYSUT1,R))
+    SELECT MEMBER=BZUCBCBL
+    SELECT MEMBER=BZUCBPL1
+    SELECT MEMBER=BZUSCFG
+//*

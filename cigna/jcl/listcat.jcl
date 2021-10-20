@@ -1,1 +1,9 @@
-aaÙÓÁÔÁ@@@@ÑÖÂ@ÔâÇÃÓÁââ~ÈkÙÅÇÉÖÕ~ðÔkaa@@@@@ÕÖãÉÆè~ÙÓÁÔaaâãÅ×ñ@@@@@@ÅçÅÃ@@×ÇÔ~ÉÄÃÁÔâaaâèâ×ÙÉÕã@@@ÄÄ@@@@âèâÖäã~ÈaaâèâÉÕ@@@@@@ÄÄ@@@@\@@@@@ÓÉâãÃÁã@`@@@@@@@@@@ÅÕãÙÉÅâMâèâóKÓÖÁÄÓÉÂK×ÙÖÄ]@`@@@@@@@@@@ÁÓÓa\
+//RLAMA    JOB MSGCLASS=H,REGION=0M,
+//     NOTIFY=RLAM
+//STEP1      EXEC  PGM=IDCAMS
+//SYSPRINT   DD    SYSOUT=H
+//SYSIN      DD    *
+     LISTCAT -
+          ENTRIES(SYS3.LOADLIB.PROD) -
+          ALL
+/*

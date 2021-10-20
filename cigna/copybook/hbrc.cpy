@@ -1,1 +1,126 @@
-@@@@@@\\@Ã£@¢@@@@@@@@@ñð@ÈÂÙ`ÃÃ`ÖÒ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ðK@@@@@@@@@ñð@ÈÂÙ`ÃÃ`æÁÙÕÉÕÇ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôK@@@@@@@@@ñð@ÈÂÙ`ÃÃ`ÅÙÙÖÙ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@øK@@@@@@@@@ñð@ÈÂÙ`ÃÃ`âÅåÅÙÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ñòK@@@@@@\\@Ù¢@¢@@@@@@\\@ã@@£@¨K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÕÖÕÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ðK@@@@@@\\@Á@¤§£@@¤K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`äÕÅç×ÅÃãÅÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@òñùõK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÂÃÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððñK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÃÃÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððòK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÂÄâÃ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððóK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÃÄâÃ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððôK@@@@@@\\@ã@¢¤¢¨¢£@¢@¨@£@ÈÂÙââÉÄ@¥@@@@@@@\\@£@ÈÂÙÅÕå×Ù@£@¢£@¢@£@@£@©aÖâK@@@@@@@@@ñð@ÈÂÙ`ÙÃ`âÅÙåÅÙ`ÕÖã`ÄÅÆÉÕÅÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððõK@@@@@@\\@ã@¢¤¢¨¢£@¢@¨@£@ÈÂÙââÉÄ@¥@@@@@@@\\@£@ÈÂÙÅÕå×Ù@£@¢£@¢@£@£¥K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`âÅÙåÅÙ`ÕÖã`ÁÃãÉåÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððöK@@@@@@\\@Á@£@¢@£¨@¢@@£@ÈÂÙÁ`Ù@@@@@@\\@Á`×ÁÙÔâ@¢£¤£¤@@£@ÈÂÙÁ`ÃÖÕÕ`ÁÙÅÁ@£@K@@@@@@\\@ã@¤@@£@¥@£@¢@£¤@@@@@@\\@@£@ÈÂÙÁ`ÙÅâ×ÖÕâÅ`ÔÅââÁÇÅ@@@£@ÈÂÙÁ`ÃÖÕ@@@@@@\\@Õ`ÁÙÅÁ@£@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÕäÔÂÅÙ`×ÁÙÔâ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðð÷K@@@@@@\\@ã@¢¤¢¨¢£@¢@¨@£@ÈÂÙââÉÄ@¥@@@@@@@\\@£@ÈÂÙÅÕå×Ù@£@¢£@¢@¨@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`âÅÙåÅÙ`ÉÄ`ÉÕåÁÓÉÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððøK@@@@@@\\@ã@¢¥@¢@¤@£@£@¦@¤¢@£@¢@@@@@@\\@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÕÖã`ÁÃÃÅ×ãÉÕÇ`æÖÙÒ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óððùK@@@@@@\\@ã@ÃÉÃâ@¥¢@¤¢@£@£@£@£@¢¥@¢@@@@@@\\@¤¢¤£K@©Ù¤@Å§¤£@â¥@@©aÖâ@¢¤@@@@@@\\@£¢@¨@ÃÉÃâ@¥¢@óKòk@ôKñk@@ôKòK@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÉÕåÁÓÉÄ`ÃÉÃâ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñðK@@@@@@\\@ã@¥¢@@ÃÉÃâ@¤¢@¦£@ÈÂÙäâÅÑåÔâ~èÅâ@¢@¤@@@@@@\\@¢¤£K@ã@ÈÂÙäâÅÑåÔâ~èÅâ@£@¢@¢¤£@@@@@@\\@@¨@@ÃÉÃâ@ãâ@¥¢@ôKñ@@£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÑåÔâ`ÙÅÓÅÁâÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðññK@@@@@@\\@Á@£££@£@£@¢£@¢@K@ã@¢@@@@@@\\@£@¤@¢£@¥@£@£@£@¤@@@@@@\\@¢£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`âãÖÙÁÇÅ`ÆÁÉÓ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñòK@@@@@@\\@ã@£@£@ÑåÔ@â¥@ÈÂÙÑåÔ@¢@@¢@@@@@@\\@£@ÑåÔ@â¥@¢@£@¢£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÃÉÃâ`ÕÖ`ÑåÔâÅÙåÅÙ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñóK@@@@@@\\@ã@£@£@ÑåÔ@â¥@ÈÂÙÑåÔ@¢@@¢@@@@@@\\@£@ÑåÔ@â¥@¢@£@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÃÉÃâ`ÕÖãÅÕÁÂÓÅÄ`ÑåÔâ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñôK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÉÃÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñõK@@@@@@\\@ä@£@@Ä¢@â¥@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÈÂÙÉÄâÃ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñöK@@@@@@\\@ã@@@¢@@ÈÂÙÁmÃÖÕÕmÙäÓÅmÃÃâÉÄ@¢@@@@@@\\@¥K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÅÙÙÖÙ`ÉÕåÁÓÉÄ`ÃÃâÉÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñ÷K@@@@@@\\@Á@ÈÂÙââÉÄÓÉâã@¥¤@¢@¢¢@@@£@¢£@¢@@@@@@\\@@¨@£@ÈÂÙÅÕå×Ù@ÄÄ@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÔÉââÉÕÇ`ÈÂÙââÉÄÓÉâã@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñøK@@@@@@\\@ã@ÈÂÙââÉÄÓÉâã@¥¤@¢@£K@×¢@¥@@@@@@\\@@@¢£@¢£@@¤@£@óò@ââÉÄ¢@@ô@@@@@@@\\@£¢@KK@ÈÂÙñkÈÂÙòkÈÂÙó@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÈÂÙââÉÄÓÉâã@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðñùK@@@@@@\\@Õ@¥@©Ù¤@Å§¤£@â¥@¦¢@¤@@£@È@@@@@@\\@ÂÙââÉÄÓÉâã@£¨K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÕÖ`åÁÓÉÄ`âÅÙåÅÙ`ÃÖÕÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðòðK@@@@@@\\@Á@©Ù¤@Å§¤£@â¥@@£@ÈÂÙââÉÄÓÉâã@@@@@@@\\@£¨@¤@£@@£@£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÁÙÕÉÕÇ`âÅÙåÅÙ`ÓÉâã@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðòñK@@@@@@\\@Õ@¥@©Ù¤@Å§¤£@â¥@¦¢@¤@£@§¤@@@@@@\\@£@£@¤@¤¢£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÕÖ`åÁÓÉÄ`âÅÙåÅÙ`ÙäÓÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðòòK@@@@@@\\@Ã¤@£@@ÈÂÙÅÕå×Ù@¦@¢@@@£@ÈÂ@@@@@@\\@ÙÅÕå×Ù@ÄÄ@¢£££@@£@ÃÉÃâ@ÑÃÓK@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÃÉÃâ`ÅÕå`ÄÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@óðòóK@@@@@@\\@ã@¤¢@ÉÄ@@£@£@¢¢¤@£@ÈÂÙÃÖÕÕ@@@@@@\\@Á×É@@¢@£@¤£©@£@£@£@£@¢¥@@@@@@\\@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÃÖÕÕ`ÕÖã`ÁäãÈ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðóõK@@@@@@\\@Ô¢¢@Ù¤@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÔÉââÉÕÇ`ÙÁ`ÕÁÔÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðøôK@@@@@@\\@É¥@Ù¤@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÙÁ`ÕÁÔÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðøõK@@@@@@\\@ÃÉÃâ@¢@£@£@£@©Ù¤@Å§¤£@â¥@@@@@@@\\@@©aÖâK@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÁÄÁ×ãÅÙ`ÕÖã`ÁåÁÉÓÁÂÓÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðøöK@@@@@@\\@ã@ÈÂÙÃ@¢£¤£¤@@£@ÈÂÙÁ`ÃÖÕÕ`ÁÙÅÁ@£@@@@@@@\\@¢¢@£@£@£@ÈÂÙÃÖÕÕ@Á×É@@£@ÈÂÙÙäÓÅ@Á@@@@@@\\@×É@¢@¥@@£¢@¥@£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÕåÁÓÉÄ`ÈÂÙÃ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðø÷K@@@@@@\\@ã@¤¢@ÉÄ@¢@¨@£@£@£@¢¥K@ã@@@@@@\\@@¤¢@ÉÄ@¢@¢¢@@@£@ÈÂÙÁ`ÙÅâ×ÖÕâÅ`ÔÅââ@@@@@@\\@ÁÇÅ@@@£@ÈÂÙÁ`ÃÖÕÕ`ÁÙÅÁ@£@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÁÓÙÅÁÄè`ÃÖÕÕÅÃãÅÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðøøK@@@@@@\\@Á@ÈÂÙââÉÄ@¥¤@¢@¢¢@@@£@¢£@¢@@@@@@\\@¨@£@ÈÂÙÅÕå×Ù@ÄÄ@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÔÉââÉÕÇ`ÈÂÙââÉÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðøùK@@@@@@\\@ã@£@¢@£@£@£@£@¢¥K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÕÖã`ÃÖÕÕÅÃãÅÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@ôðùðK@@@@@@\\@Á@¤§£@§£@¤@@£@ÑÙ¤¢@@@@@@@\\@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÑÙäÓÅâ`äÕÅç×ÅÃãÅÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@õðððK@@@@@@\\@Á@§£@¤@@£@ÑÙ¤¢@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÑÙäÓÅâ`ÅçÃÅ×ãÉÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@õððñK@@@@@@\\@Á@§£@¤@¥£@£@£@£@@@@@@\\@K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÙÁæ`ÄÁãÁ`ÅçÃÅ×ãÉÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@õððòK@@@@@@\\@Á@§£@¤@¢@£@¤@£@@@@@@\\@£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`ÉÓÙ`ÆÖÙÔÁã`ÅçÃÅ×ãÉÖÕ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@õððóK@@@@@@\\@ä@£@@æÖÓÁ@@¤¢K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÖÓÁ`ÓÖÁÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@öðððK@@@@@@\\@ã@æÁâ@¢¥@¢@¨@ÈÂÙæÖÓÁâÅÙåÅÙ@£@@@@@@@\\@@£K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÖÓÁ`ÂÁÄ`ÄÁÅÔÖÕ`ÇÙÖä×@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@öððñK@@@@@@\\@ã@@@@¢¥@@¢@£@¤K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÖÓÁ`ÂÁÄ`ÃÅÓÓ`ÖÙ`ÕÖÄÅ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@öððòK@@@@@@\\@Á@@¤@¦@£@£@æÁâK@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÖÓÁ`æÁâ`ÅÙÙÖÙ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@öððóK@@@@@@\\@ã@æÖÓÁ@ÅÑÂ@¤@£@@¤K@@@@@@@@@ñð@ÈÂÙ`ÙÃ`æÖÓÁ`ÅÑÂ`ÕÖã`ÆÖäÕÄ@×ÉÃ@âùMù]@ÂÉÕÁÙè@åÁÓäÅ@öððôK
+      ** Completion codes
+         10 HBR-CC-OK PIC S9(9) BINARY VALUE 0.
+         10 HBR-CC-WARNING PIC S9(9) BINARY VALUE 4.
+         10 HBR-CC-ERROR PIC S9(9) BINARY VALUE 8.
+         10 HBR-CC-SEVERE PIC S9(9) BINARY VALUE 12.
+      ** Reason codes
+      ** The call completed normally.
+         10 HBR-RC-NONE PIC S9(9) BINARY VALUE 0.
+      ** An unexpected error occurred.
+         10 HBR-RC-UNEXPECTED PIC S9(9) BINARY VALUE 2195.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRBCON PIC S9(9) BINARY VALUE 3001.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRCCON PIC S9(9) BINARY VALUE 3002.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRBDSC PIC S9(9) BINARY VALUE 3003.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRCDSC PIC S9(9) BINARY VALUE 3004.
+      ** The subsystem specified by the HBRSSID variable in
+      ** the HBRENVPR data set is not defined to z/OS.
+         10 HBR-RC-SERVER-NOT-DEFINED PIC S9(9) BINARY VALUE 3005.
+      ** The subsystem specified by the HBRSSID variable in
+      ** the HBRENVPR data set is not active.
+         10 HBR-RC-SERVER-NOT-ACTIVE PIC S9(9) BINARY VALUE 3006.
+      ** A parameter is incorrectly specified in the HBRA-R
+      ** A-PARMS structure in the HBRA-CONN-AREA data area.
+      ** The number of the invalid parameter is returned
+      ** in the HBRA-RESPONSE-MESSAGE field of the HBRA-CON
+      ** N-AREA data area.
+         10 HBR-RC-INVALID-NUMBER-PARMS PIC S9(9) BINARY VALUE 3007.
+      ** The subsystem specified by the HBRSSID variable in
+      ** the HBRENVPR data set is already in use.
+         10 HBR-RC-SERVER-ID-INVALID PIC S9(9) BINARY VALUE 3008.
+      ** The server is unable to accept work because it is
+      ** paused.
+         10 HBR-RC-NOT-ACCEPTING-WORK PIC S9(9) BINARY VALUE 3009.
+      ** The CICS version used to connect to the server is
+      ** unsupported. zRule Execution Server for z/OS suppo
+      ** rts only CICS version 3.2, 4.1, and 4.2.
+         10 HBR-RC-ERROR-INVALID-CICS PIC S9(9) BINARY VALUE 3010.
+      ** The version of CICS used with HBRUSEJVMS=YES is un
+      ** supported. The HBRUSEJVMS=YES parameter is support
+      ** ed only on CICS TS version 4.1 or later.
+         10 HBR-RC-INVALID-JVMS-RELEASE PIC S9(9) BINARY VALUE 3011.
+      ** An attempt to obtain storage has failed. There is
+      ** not enough storage available to complete the reque
+      ** st.
+         10 HBR-RC-ERROR-STORAGE-FAIL PIC S9(9) BINARY VALUE 3012.
+      ** The connection to JVM Server HBRJVM has failed as
+      ** the JVM Server is not installed.
+         10 HBR-RC-CICS-NO-JVMSERVER PIC S9(9) BINARY VALUE 3013.
+      ** The connection to JVM Server HBRJVM has failed as
+      ** the JVM Server is not enabled.
+         10 HBR-RC-CICS-NOTENABLED-JVMS PIC S9(9) BINARY VALUE 3014.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRICON PIC S9(9) BINARY VALUE 3015.
+      ** Unable to load Decision Server load modules.
+         10 HBR-RC-ERROR-HBRIDSC PIC S9(9) BINARY VALUE 3016.
+      ** The code page specified in HBRA_CONN_RULE_CCSID is
+      ** invalid.
+         10 HBR-RC-ERROR-INVALID-CCSID PIC S9(9) BINARY VALUE 3017.
+      ** A HBRSSIDLIST value is missing in a data set specif
+      ** ied by the HBRENVPR DD card.
+         10 HBR-RC-MISSING-HBRSSIDLIST PIC S9(9) BINARY VALUE 3018.
+      ** The HBRSSIDLIST value is incorrect. Please provide
+      ** a comma separated list of up to 32 SSIDs of 4 cha
+      ** racters e.g. HBR1,HBR2,HBR3
+         10 HBR-RC-INVALID-HBRSSIDLIST PIC S9(9) BINARY VALUE 3019.
+      ** No valid zRule Execution Server was found in the H
+      ** BRSSIDLIST property.
+         10 HBR-RC-NO-VALID-SERVER-CONN PIC S9(9) BINARY VALUE 3020.
+      ** A zRule Execution Server in the HBRSSIDLIST proper
+      ** ty could not be connected to.
+         10 HBR-RC-WARNING-SERVER-LIST PIC S9(9) BINARY VALUE 3021.
+      ** No valid zRule Execution Server was found to execu
+      ** te the rule request.
+         10 HBR-RC-NO-VALID-SERVER-RULE PIC S9(9) BINARY VALUE 3022.
+      ** Could not open HBRENVPR which is defined in the HB
+      ** RENVPR DD statement in the CICS JCL.
+         10 HBR-RC-INVALID-CICS-ENV-DD PIC S9(9) BINARY VALUE 3023.
+      ** The user ID of the application issuing the HBRCONN
+      ** API call is not authorized to connect to the serv
+      ** er.
+         10 HBR-RC-CONN-NOT-AUTH PIC S9(9) BINARY VALUE 4035.
+      ** Missing Ruleapp name.
+         10 HBR-RC-MISSING-RA-NAME PIC S9(9) BINARY VALUE 4084.
+      ** Invalid Ruleapp name.
+         10 HBR-RC-INVALID-RA-NAME PIC S9(9) BINARY VALUE 4085.
+      ** CICS is not connected to zRule Execution Server fo
+      ** r z/OS.
+         10 HBR-RC-ADAPTER-NOT-AVAILABLE PIC S9(9) BINARY VALUE 4086.
+      ** The HBRC structure in the HBRA-CONN-AREA data area
+      ** passed either to the HBRCONN API or the HBRRULE A
+      ** PI is invalid or contains invalid data.
+         10 HBR-RC-INVALID-HBRC PIC S9(9) BINARY VALUE 4087.
+      ** The user ID is already connected to the server. Th
+      ** e user ID is passed back in the HBRA-RESPONSE-MESS
+      ** AGE field of the HBRA-CONN-AREA data area.
+         10 HBR-RC-ALREADY-CONNECTED PIC S9(9) BINARY VALUE 4088.
+      ** A HBRSSID value is missing in a data set specified
+      ** by the HBRENVPR DD card.
+         10 HBR-RC-MISSING-HBRSSID PIC S9(9) BINARY VALUE 4089.
+      ** The application is not connected to the server.
+         10 HBR-RC-NOT-CONNECTED PIC S9(9) BINARY VALUE 4090.
+      ** An unexpected exception occurred in the JRules eng
+      ** ine.
+         10 HBR-RC-JRULES-UNEXPECTED PIC S9(9) BINARY VALUE 5000.
+      ** An exception occurred in the JRules engine.
+         10 HBR-RC-JRULES-EXCEPTION PIC S9(9) BINARY VALUE 5001.
+      ** An exception occurred converting the parameter dat
+      ** a.
+         10 HBR-RC-RAW-DATA-EXCEPTION PIC S9(9) BINARY VALUE 5002.
+      ** An exception occurred parsing the rule application
+      ** path.
+         10 HBR-RC-ILR-FORMAT-EXCEPTION PIC S9(9) BINARY VALUE 5003.
+      ** Unable to load WOLA load modules.
+         10 HBR-RC-WOLA-LOAD PIC S9(9) BINARY VALUE 6000.
+      ** The WAS server specified by HBRWOLASERVER cannot b
+      ** e located.
+         10 HBR-RC-WOLA-BAD-DAEMON-GROUP PIC S9(9) BINARY VALUE 6001.
+      ** The node name or server name is not found.
+         10 HBR-RC-WOLA-BAD-CELL-OR-NODE PIC S9(9) BINARY VALUE 6002.
+      ** An error occurred while connecting to WAS.
+         10 HBR-RC-WOLA-WAS-ERROR PIC S9(9) BINARY VALUE 6003.
+      ** The WOLA EJB could not be found.
+         10 HBR-RC-WOLA-EJB-NOT-FOUND PIC S9(9) BINARY VALUE 6004.

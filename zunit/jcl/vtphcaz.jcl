@@ -1,1 +1,13 @@
-aaÙÓÁÔââÃñ@ÑÖÂ@ÔâÇÃÓÁââ~ÈkÙÅÇÉÖÕ~ðÔkaa@@@@@ÕÖãÉÆè~ÙÓÁÔaa\@@ÙäÕ@æÁéÉ@åã×@ÆÖÙ@ÈÃÁéaa×ÓÁèÂÒ@@@ÅçÅÃ@×ÇÔ~Âéä×ÓÁèk×ÁÙÔ~}ãÙÁÃÅ~Õ}aa\×ÓÁèÂÒ@@@ÅçÅÃ@×ÇÔ~Âéä×ÓÁèk×ÁÙÔ~}ãÙÁÃÅ~è}aaâãÅ×ÓÉÂ@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÂéäKåñÙðÔðKâÂéäÓÖÁÄaa@@@@@@@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÙÓÁÔKÈÅÁÓãÈKÓÖÁÄaa\@@@@@@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÙÓÁÔKéäÕÉãKãÅâãKÓÖÁÄaa\Âéä×ÓÁè@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÂéäñððKéäÕÉãK×ÓÁèÂÁÃÒaaÂéä×ÓÁè@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÂéäKéäÕÉãK×ÓÁèÂÁÃÒKÄÅÔÖaaâèâÖäã@@@ÄÄ@âèâÖäã~\@@@@@@@MãÈÉâ@ÒÅÅ×â@ÓÅ@Öäã×äã@ÉÕ@ÖÕÅ@â×ÖÖÓ@ÆÉÓÅ]aaÂéäÔâÇ@@ÄÄ@âèâÖäã~\@@@@@@@@MÖ×ãÉÖÕÁÓk@ÃÁÕ@ÂÅ@Á@åÂ@Öäã×äã@ÄÁãÁâÅã]aa
+//RLAMSSC1 JOB MSGCLASS=H,REGION=0M,
+//     NOTIFY=RLAM
+//*  RUN WAZI VTP FOR HCAZ
+//PLAYBK   EXEC PGM=BZUPLAY,PARM='TRACE=N'
+//*PLAYBK   EXEC PGM=BZUPLAY,PARM='TRACE=Y'
+//STEPLIB  DD DISP=SHR,DSN=BZU.V1R0M0.SBZULOAD
+//         DD DISP=SHR,DSN=RLAM.HEALTH.LOAD
+//*        DD DISP=SHR,DSN=RLAM.ZUNIT.TEST.LOAD
+//*BZUPLAY  DD DISP=SHR,DSN=BZU100.ZUNIT.PLAYBACK
+//BZUPLAY  DD DISP=SHR,DSN=BZU.ZUNIT.PLAYBACK.DEMO
+//SYSOUT   DD SYSOUT=*       (THIS KEEPS LE OUTPUT IN ONE SPOOL FILE)
+//BZUMSG  DD SYSOUT=*        (OPTIONAL, CAN BE A VB OUTPUT DATASET)
+//

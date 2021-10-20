@@ -1,1 +1,123 @@
-aaÙÓÁÔÃâÄ@ÑÖÂ@ÔâÇÃÓÁââ~çkÙÅÇÉÖÕ~ðÔkaa@@@@@ÕÖãÉÆè~ÙÓÁÔaa\ÁéäÃâÄ@@@ÑÖÂ@L@£¢naa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aa\@Ó¢@£¢@`@×£¨@@ÉÂÔaa\@õ÷òô`ãð÷@Ã¨£@ÉÂÔ@ÃK@òðñùk@òðòðaa\@Á@£¢@¢¥aa\@äâ@Ç¥£@¤¢¢@¢££@£¢@@`@@ä¢k@¤£@aa\@¢¢¤@¢££@¨@ÇâÁ@ÁÄ×@¢¤@££@¦£@ÉÂÔ@ÃKaa\aa\@©aÖâ@Å§@Å§£¢¢aa\@ÉÂÔ@©aÖâ@Á¤££@ä£@ã¢£@Æ¦@M©ä£]aa\@ã¢@@¦@@£@©ä£@ÃÉÃâ@@¢¥@£@¨¤aa\@ÃÉÃâãâ@Kaa\aa\aa\@ÃÁäãÉÖÕz@ã¢@¢@£@@ÑÃÓ@¤@@@£@Kaa\@Â@¤¢@£¢@@¢£k@¨¤@¦@¥@£@@£@¦aa\@£¢zaa\aa\@ñ]@Á@£@@£¢@£@£@¨¤@¢¨¢£@¤£¢Kaa\aa\@ò]@Ã@{¢@£@£@ÃÉÃâ@@¥@¤M¢]Kaa\aa\@ó]@Ã@{¢@£@£@@¥@¤M¢]@@£@ÃÉÃâaa\@@@@ÃâÄ@£@£@¢¤@£¢@@£@ÃÉÃâ@Kaa\aa\@ô]@Ã@{£@£@£@ãÃ×aÉ×@£@¤¢@@¤£@¦£aa\@@@@£@©ä£@ÙÅâã@Á×Ék@££zaaL¢£nzL£na©¤£aKaa\aa\@õ]@Ã@{¢£@£@£@£@¤¢@£@¢£@£@©aÖâ@äÕÉçaa\@@@@£¢@@ÃÉÃâKaa\aa\@ö]@Ã@{©¤£@£@£@£@¤¢@£@¢£@£@©aÖâ@äÕÉçaa\@@@@£¢@@©ä£@M¤£@a¤¢aaÉÂÔa©]Kaa\aa\@÷]@å¨a@£@¤¢@@£@a¥a¢£¢@¢@âÈÅÓÆaa\@@@@£¨@@¨¤@ÃÉÃâ@Kaa\aa\@ø]@Ã@{¢£@£@£@£@ÃÉÃâ@¢££¤@¤aa\@@@@¢£@k@@§@ÁéäÓÉâãKaa\@@@@ã¢@¢£@@¤¢£@@@¨¤@ÃÉÃâ@ÇÙ×ÓÉâã@££@¢@¢aa\@@@@@£@¢¨¢£@£©£@MâÉã]@£¢Kaa\aa\@ù]@å¨a@£@¤¢@@¤@@ÁéäÇÙÖä×Kaa\aa\@Õ£M¢]zaa\aa\@ñK@ã@ÃâÄ@£¢@@@¥ñôKòKñK@É@¨¤@¢¤££@£¢aa\@@@@@¦£@£@¥ñôKòKð@£¢k@¤£@£@ÄÅÓÅãÅaa\@@@@¢£££¢@@¦£@¢@¥ñôKòKñ@@¢¤£@£¢@Kaa\aa\@òK@ã¢@@¢¤@£@¦£@@£¤@@ðK@Ù£¤@@ôaa\@@@@¢@@@@¢¤@¢@`§¢£Kaa\aa\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\aaÁéäÃâÄ@@@ÅçÅÃ@×ÇÔ~ÄÆÈÃâÄä×kÙÅÇÉÖÕ~ðÔkaa@@@@@@@@@@@@×ÁÙÔ~}ÃâÄMÙÅÁÄæÙÉãÅ]k×ÁÇÅâÉéÅMöð]kÕÖÃÖÔ×Áã}aaâãÅ×ÓÉÂ@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÄÆÈKåõÙöÔðKÃÉÃâKâÄÆÈÓÖÁÄaaÄÆÈÃâÄ@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÃÉÃâõöKÃÉÃâðñKÄÆÈÃâÄaaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aaâèâÉÕ@@@@ÄÄ@\@@@@@@@ÄÅÓÅãÅ@@@@ÓÉâãMÁéäÓÉâã]@@@@@@@ÄÅÓÅãÅ@@@@ÇÙÖä×MÁéäÇÙÖä×]\@¢@¥ñôKòKñk@¢£\@@@@@@ÄÅÓÅãÅ@ãÙÁÕâÁÃãÉÖÕMÁéäÙ]\@@@@@@ÄÅÓÅãÅ@×ÙÖÇÙÁÔMÁéäÃÙÂÇ]\@@@@@@ÄÅÓÅãÅ@×ÙÖÇÙÁÔMÁéäÃÙÇÅ]\@@@@@@ÄÅÓÅãÅ@×ÙÖÇÙÁÔMÁéäÃâãÙã]\@¢@¥ñôKòKñk@¤¢@¦£@¢¢¨@£@£@£¢\@@@@@@ÄÅÓÅãÅ@ãÙÁÕâÁÃãÉÖÕMÁéäÔ]\@@@@@@ÄÅÓÅãÅ@×ÙÖÇÙÁÔMÁéäÃÔÇã]\@@@@@@ÄÅÓÅãÅ@×ÙÖÇÙÁÔMÁéäÃÙÅâã]\@@@@@@ÄÅÓÅãÅ@ãÃ×É×âÅÙåÉÃÅMÁéäÙÅâã]\@@@@@@ÄÅÓÅãÅ@×É×ÅÓÉÕÅMÁéä×É×Å]\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\@ÙÅâã@Á×É@£¢@@©ä£@ÃÉÃâ@@£K\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ÄÅÆÉÕÅ@ãÙÁÕâÁÃãÉÖÕMÁéäÔ]@@@@@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@Ô£@ã¢£]@@@@@@@×ÙÖÇÙÁÔMÁéäÃÔÇã]ÄÅÆÉÕÅ@×ÙÖÇÙÁÔMÁéäÃÔÇã]@@@@@@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@Ô£@Ã]@@@@@@@ÓÁÕÇäÁÇÅMÃ]ÄÅÆÉÕÅ@×ÙÖÇÙÁÔMÁéäÃÙÅâã]@@@@@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@Ù¢£@Á×É]@@@@@@@ÓÁÕÇäÁÇÅMÃ]@@@@@@@@@@@@@@@@@@@@@@ÅçÅÃÒÅèMÃÉÃâ]\@öôøö@@©ä£@ÙÅâã@Á×ÉÄÅÆÉÕÅ@ãÃ×É×âÅÙåÉÃÅMÁéäÙÅâã]@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@ÙÅâã@Á×É]@@@@@@@ÁäãÈÅÕãÉÃÁãÅMÕÖ]@@@@@@@@@@@@@@@@@ÂÁÃÒÓÖÇMñ]@@@@@@@ÔÁçÄÁãÁÓÅÕMõñòððð]@@@@@@@@@@@@@@@×ÖÙãÕäÔÂÅÙMöôøö]@@@@@@@×ÙÖãÖÃÖÓMÈãã×]@@@@@@@@@@@@@@@@@@@âÖÃÒÅãÃÓÖâÅMÕÖ]@@@@@@@ââÓMÕÖ]@@@@@@@@@@@@@@@@@@@@@@@@@@âãÁãäâMÖ×ÅÕ]@@@@@@@ãÙÁÕâÁÃãÉÖÕMÃæçÕ]@@@@@@@@@@@@@@@@äÙÔMÄÆÈæÂÁÁç]\@æ@@@¨@@\@@¤@÷ò@@£¤@@¤@ñK\@a¤¢aa¢£¢aõöðaÄÅÆÉÕÅ@×É×ÅÓÉÕÅMÁéä×É×Å]@@@@@@@@@@@@@@@@ÇÙÖä×MÁéäÇÙÖä×]@@@@@@@ÄÅâÃÙÉ×ãÉÖÕM©ä£@ÑâÖÕ@`Ñ¥@×¥@×]@@@@@@@âãÁãäâMÅÕÁÂÓÅÄ]@@@@@@@ÃÖÕÆÉÇÆÉÓÅMa¤¢aa¢£¢aõöða¢¢a¢a¢¥\¥K§]@@@@@@@âÈÅÓÆMa¥a¢£¢]@@@@@@@æâÄÉÙMa¤¢aaÉÂÔa©aa¦¢]\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\@Á@£@¤@£@@ÇÙ×ÓÉâã@¢£K\@Ã@£@ÓÉâã@@£@@ÓÉâã@¦@¢@@¨¤@ÃÉÃâ@ÇÙ×ÓÉâãK\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\ÁÄÄ@@@@ÇÙÖä×MÁéäÇÙÖä×]@@ÓÉâãMÁéäÓÉâã]aa\
+//RLAMCSD JOB MSGCLASS=X,REGION=0M,
+//     NOTIFY=RLAM
+//*AZUCSD   JOB <job parameters>
+//*********************************************************************
+//* Licensed materials - Property of IBM
+//* 5724-T07 Copyright IBM Corp. 2019, 2020
+//* All rights reserved
+//* US Government users restricted rights  -  Use, duplication or
+//* disclosure restricted by GSA ADP schedule contract with IBM Corp.
+//*
+//* z/OS Explorer Extensions
+//* IBM z/OS Automated Unit Testing Framework (zUnit)
+//* This job will define the zUnit CICS recording service to your
+//* CICSTS region.
+//*
+//*
+//* CAUTION: This is neither a JCL procedure nor a complete job.
+//* Before using this job step, you will have to make the following
+//* modifications:
+//*
+//* 1) Add the job parameters to meet your system requirements.
+//*
+//* 2) Change #cicshlq to the CICS high level qualifier(s).
+//*
+//* 3) Change #csdhlq to the high level qualifier(s) of the CICS
+//*    CSD containing the resource definitions for the CICS region.
+//*
+//* 4) Change #port to the TCP/IP port used for communication with
+//*    the zUnit REST API, http://<host>:<port>/zunit/.
+//*
+//* 5) Change #cicspath to the path used to install the z/OS UNIX
+//*    components of CICS.
+//*
+//* 6) Change #azupath to the path used to install the z/OS UNIX
+//*    components of zUnit (default /usr/lpp/IBM/zee).
+//*
+//* 7) Verify/change the use of path "/var/cicsts" as SHELF
+//*    directory for your CICS region.
+//*
+//* 8) Change #listname to the appropriate CICS startup group
+//*    list name, for example AZULIST.
+//*    This list name must be in your CICS GRPLIST that is specified
+//*    in the system initialization (SIT) parameters.
+//*
+//* 9) Verify/change the use of group name "AZUGROUP".
+//*
+//* Note(s):
+//*
+//* 1. The CSD definitions changed in v14.2.1. If you submitted this
+//*    job with the v14.2.0 definitions, uncomment the DELETE
+//*    statements marked with "since v14.2.1" and resubmit this job.
+//*
+//* 2. This job should complete with a return code 0. Return code 4
+//*    is normal if a resource is pre-existing.
+//*
+//*********************************************************************
+//AZUCSD   EXEC PGM=DFHCSDUP,REGION=0M,
+//            PARM='CSD(READWRITE),PAGESIZE(60),NOCOMPAT'
+//STEPLIB  DD DISP=SHR,DSN=DFH.V5R6M0.CICS.SDFHLOAD
+//DFHCSD   DD DISP=SHR,DSN=CICS56.CICS01.DFHCSD
+//SYSPRINT DD SYSOUT=*
+//SYSIN    DD *
+       DELETE    LIST(AZULIST)
+       DELETE    GROUP(AZUGROUP)
+
+* since v14.2.1, obsolete
+*      DELETE TRANSACTION(AZUR)
+*      DELETE PROGRAM(AZUCRBG)
+*      DELETE PROGRAM(AZUCRGE)
+*      DELETE PROGRAM(AZUCSTRT)
+* since v14.2.1, reused with possibly altered definition details
+*      DELETE TRANSACTION(AZUM)
+*      DELETE PROGRAM(AZUCMGT)
+*      DELETE PROGRAM(AZUCREST)
+*      DELETE TCPIPSERVICE(AZUREST)
+*      DELETE PIPELINE(AZUPIPE)
+
+***********************************************************************
+*
+* REST API definitions for zUnit CICS recorder application.
+*
+***********************************************************************
+
+DEFINE TRANSACTION(AZUM)                GROUP(AZUGROUP)
+       DESCRIPTION(zUnit Management Transaction)
+       PROGRAM(AZUCMGT)
+
+DEFINE PROGRAM(AZUCMGT)                 GROUP(AZUGROUP)
+       DESCRIPTION(zUnit Management Command)
+       LANGUAGE(C)
+
+DEFINE PROGRAM(AZUCREST)                GROUP(AZUGROUP)
+       DESCRIPTION(zUnit Rest API)
+       LANGUAGE(C)                      EXECKEY(CICS)
+
+* 6486 for zUnit REST API
+DEFINE TCPIPSERVICE(AZUREST)            GROUP(AZUGROUP)
+       DESCRIPTION(zUnit REST API)
+       AUTHENTICATE(NO)                 BACKLOG(1)
+       MAXDATALEN(512000)               PORTNUMBER(6486)
+       PROTOCOL(HTTP)                   SOCKETCLOSE(NO)
+       SSL(NO)                          STATUS(OPEN)
+       TRANSACTION(CWXN)                URM(DFHWBAAX)
+
+* Wrap a line by placing * in column 72 and continue in column 1.
+* /usr/lpp/cicsts/dfh560/
+DEFINE PIPELINE(AZUPIPE)                GROUP(AZUGROUP)
+       DESCRIPTION(zUnit JSON non-Java Provider Pipeline)
+       STATUS(ENABLED)
+       CONFIGFILE(/usr/lpp/cicsts/dfh560/samples/pipelines/jsonnonjavap*
+rovid.xml)
+       SHELF(/var/cicsts)
+       WSDIR(/usr/lpp/IBM/idz/lib/wsbind)
+
+***********************************************************************
+*
+* Add the group to a GRPLIST list.
+* Change the LIST operand to a LIST which is in your CICS GRPLIST.
+*
+***********************************************************************
+
+ADD    GROUP(AZUGROUP)  LIST(AZULIST)
+//*

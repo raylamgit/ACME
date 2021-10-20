@@ -1,1 +1,119 @@
-aaÙÁèÃÖÂÖÓ@ÑÖÂ@òôñùðñk}ÃÖÂ@ÇÅÕÅÙÁãÅ}kÕÖãÉÆè~PâèâäÉÄkÃÓÁââ~ÁkÔâÇÃÓÁââ~Èkaa@@@@@@@ÙÅÇÉÖÕ~ðÔaa\aa\@Ã@¨@ÙÅÇÉ@@Æ@òñ@òðñ÷@£@@@Ä¤aa\aa\aa@âÅã@ÈÓØ~ÙÓÁÔKéäÕÉãaa@âÅã@ÃÉÃâÈÓØ~ÄÆÈKåõÙöÔðKÃÉÃâaa\@âÅã@ÄâÕÁÈÓØ~ÄâÕÂñðKÄÂÂÇaa@âÅã@ÄÂòÈÓØ~ÄâÕKåñòÙñÔðaa@âÅã@ÃÖÂÈÓØ~ÉÇèKåöÙóÔðaa\```````````````````````````````````````````````````````````````````\aaÄÂò×ÙÖÃ@@×ÙÖÃaa\```````````````````````````````````````````````````````````````````\aa\@@ÉÕåÖÒÅ@ãÈÅ@ÃÖÂÖÓ@ÃÖÔ×ÉÓÅ@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\```````````````````````````````````````````````````````````````````\aa\aaÃÖÂÓ@@@@@ÅçÅÃ@×ÇÔ~ÉÇèÃÙÃãÓkaa\@ÖÙÉ@×ÁÙÔ~}ÕÖÄèÕÁÔkÓÉÂkÙÅÕãkÁ×ÖâãkÓÉÂkÃÉÃâM}}â×}}]kâØÓkâÉéÅMôðððÒ]}aa\@åô@×ÁÙÔ~}ÕÖÄèÕÁÔkÓÉÂkÙÅÕãkÁ×ÖâãkÓÉÂkÃÉÃâM}}â×}}]kâØÓkâÉéÅMôðððÒ]kaa\@@@@@@@@@@@@@âÖäÙÃÅkÓÉâãkçÙÅÆkÔÁ×}aa@×ÁÙÔ~}ãÅâãkÕÖÄèÕÁÔkÓÉÂkÙÅÕãkÁ×ÖâãkÓÉÂkÃÉÃâM}}â×}}]kâØÓkâÉéÅMôðððÒ]}aaâãÅ×ÓÉÂ@@ÄÄ@ÄâÕ~PÃÖÂÈÓØKKâÉÇèÃÖÔ×kÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÓÖÁÄkÄÉâ×~âÈÙaa\@@@@@@@@@ÄÄ@ÄâÕ~PÄâÕÁÈÓØKKâÄâÕÅçÉãkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÄÂòÈÓØKKâÄâÕÅçÉãkÄÉâ×~âÈÙaa\@@@@@@@@@ÄÄ@ÄâÕ~PÄâÕÁÈÓØKKÙäÕÓÉÂKÓÖÁÄkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÄÂòÈÓØKKâÄâÕÓÖÁÄkÄÉâ×~âÈÙaaâèâÓÉÂ@@@ÄÄ@ÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÃÖÂkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÔÁÃkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÃÉÃâÈÓØKKâÄÆÈâÁÔ×kÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÄÂòÈÓØKKâÄâÕâÁÔ×kÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÄÂòÈÓØKKâÄâÕÔÁÃâkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~PÈÓØKKéÔÖÂÉÓÅKÃÖ×èÓÉÂkÄÉâ×~âÈÙaaâèâÉÕ@@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÈÓØKKéÔÖÂÉÓÅKÃÖÂÖÓMPÔÅÔ]aaÄÂÙÔÓÉÂ@@ÄÄ@ÄâÕ~PÈÓØKKéÔÖÂÉÓÅKÄÂÙÔMPÔÅÔ]kÄÉâ×~âÈÙaaâèâÓÉÕ@@@ÄÄ@ÄâÕ~PPÓÖÁÄâÅãkÄÉâ×~MÕÅæk×Áââ]käÕÉã~âèâÄÁkaa@@@@@@@@@â×ÁÃÅ~MãÙÒkMòðkñð]]aaâèâÁÄÁãÁ@ÄÄ@ÄäÔÔèaaâèâÔÄÅÃÒ@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñ@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãò@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãó@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãô@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãõ@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãö@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäã÷@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãø@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãù@@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñð@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãññ@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñò@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñó@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñô@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâäãñõ@@ÄÄ@äÕÉã~âèâÄÁkâ×ÁÃÅ~MôöðkMóõðkñðð]]aaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aa\```````````````````````````````````````````````````````````````````\aa\@@ÙÅÂÓÖÃÒ@ÄÆÈÅÉÓÉÁk@ÆÖÙ@äâÅ@Âè@ãÈÅ@ÓÉÕÒÅÄÉã@âãÅ×@@@@@@@@@@@@@@@@@@@\aa\```````````````````````````````````````````````````````````````````\aa\aaÃÖ×èÓÉÕÒ@ÅçÅÃ@×ÇÔ~ÉÅÂÇÅÕÅÙkÃÖÕÄ~M÷kÓãkÃÖÂÓ]aaâèâäãñ@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÃÖÂMÄÆÈÅÉÓÉÃ]aaâèâäãò@@@ÄÄ@ÄÉâ×~MÕÅæk×Áââ]kÄâÕ~PPÃÖ×èÓÉÕÒkaa@@@@@@@@@@@@ÄÃÂ~MÓÙÅÃÓ~øðkÂÓÒâÉéÅ~óñòðkÙÅÃÆÔ~ÆÂ]kaa@@@@@@@@@@@@äÕÉã~âèâÄÁkâ×ÁÃÅ~MÃèÓkMñkñ]]aaâèâ×ÙÉÕã@ÄÄ@ÄäÔÔèaaâèâÉÕ@@@@ÄÄ@ÄäÔÔèaa\```````````````````````````````````````````````````````````````````\aa\@@ÉÕåÖÒÅ@ãÈÅ@Ôåâ@ÓÉÕÒÁÇÅ`ÅÄÉãÖÙ@×ÙÖÇÙÁÔ@@@@@@@@@@@@@@@@@@@@@@@@@@@@\aa\```````````````````````````````````````````````````````````````````\aa\aaÓÒÅÄ@@@@@ÅçÅÃ@×ÇÔ~ÈÅæÓkÃÖÕÄ~M÷kÓãkÃÖÂÓ]kaa@@×ÁÙÔ~}ÓÉâãkçÙÅÆkÙÅÕãkÕÁÔÅ~PÔÅÔ}aaâèâÓÉÂ@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÃÉÃâÈÓØKKâÄÆÈÓÖÁÄaa@@@@@@@@@ÄÄ@ÄâÕ~PÄÂòÈÓØKKâÄâÕÓÖÁÄkÄÉâ×~âÈÙaa@@@@@@@@@ÄÄ@ÄâÕ~ÃÅÅKâÃÅÅÓÒÅÄkÄÉâ×~âÈÙaaâèâÓÔÖÄ@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~ÙÓÁÔKéäÕÉãKéÔÖÂÉÓÅKÓÖÁÄMPÔÅÔ]aaâèâäãñ@@@ÄÄ@äÕÉã~âèâÄÁkÄÃÂ~ÂÓÒâÉéÅ~ñðòôkaa@@@@@@@@@@@@â×ÁÃÅ~MÃèÓkMñkñ]]aaâèâ×ÙÉÕã@ÄÄ@âèâÖäã~\aaâèâÓÉÕ@@@ÄÄ@ÄÉâ×~MÖÓÄkÄÅÓÅãÅ]kÄâÕ~PPÃÖ×èÓÉÕÒaa@@@@@@@@@ÄÄ@ÄÉâ×~MÖÓÄkÄÅÓÅãÅ]kÄâÕ~PPÓÖÁÄâÅãaa@@@@@@@@@ÄÄ@ÄÉâ×~âÈÙkÄâÕ~PÈÓØKKéÔÖÂÉÓÅKÑÃÓMÓÉÕÒ×ÁÙÔ]aa@@@@@@@@@×ÅÕÄaa\aa\@¢aaÈÃÁéÔÅÕä@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁéÔÅÕäaaÈÃÁéÅÙÙâ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁéÅÙÙâaa\££@¤k@aaÈÃ×ñÂÉðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃ×ñÂÉðñaaÈÃ×ñÂÁðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃ×ñÂÁðñaaÈÃ×ñ×Óðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃ×ñ×ÓðñaaÈÃÉ×ÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÉ×ÄÂðñaaÈÃÁ×ÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁ×ÄÂðñaaÈÃÁ×ÄÂðò@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁ×ÄÂðòaaÈÃ×ÙÅâãæ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃ×ÙÅâãæaa\£¢@¤aaÈÃÔñÂÉðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔñÂÉðñaaÈÃÔñ×Óðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔñ×ÓðñaaÈÃÉÔÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÉÔÄÂðñaaÈÃÔÙÅâãæ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔÙÅâãæaa\£@aaÈÃÔÁÂÁðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔÁÂÁðñaaÈÃÔÁ×Óðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔÁ×ÓðñaaÈÃÔÁÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔÁÄÂðñaaÈÃÔÁÄÂðò@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÔÁÄÂðòaa\££@¥¢£aaÈÃåñ×Óðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃåñ×ÓðñaaÈÃåñÂÉðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃåñÂÉðñaaÈÃåñÂÁðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃåñÂÁðñaaÈÃÉåÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÉåÄÂðñaaÈÃÁåÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁåÄÂðñaa\£¢@¤k@aaÈÃÉãÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÉãÄÂðñaaÈÃÁãÄÂðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃÁãÄÂðñaaÈÃãñÂÁðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃãñÂÁðñaaÈÃãñÂÉðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃãñÂÉðñaaÈÃãñ×Óðñ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃãñ×ÓðñaaÈÃãÙÅâãæ@ÅçÅÃ@ÄÂò×ÙÖÃkÔÅÔ~ÈÃãÙÅâãæ
+//RAYCOBOL JOB 241901,'COB GENERATE',NOTIFY=&SYSUID,CLASS=A,MSGCLASS=H,
+//       REGION=0M
+//*
+//* Changed by REGI on Feb 21 2017 to compile for Debug
+//*
+//*
+// SET HLQ=RLAM.ZUNIT
+// SET CICSHLQ=DFH.V5R6M0.CICS
+//* SET DSNAHLQ=DSNB10.DBBG
+// SET DB2HLQ=DSN.V12R1M0
+// SET COBHLQ=IGY.V6R3M0
+//*-------------------------------------------------------------------*
+//DB2PROC  PROC
+//*-------------------------------------------------------------------*
+//*  INVOKE THE COBOL COMPILE                                         *
+//*-------------------------------------------------------------------*
+//*
+//COBL     EXEC PGM=IGYCRCTL,
+//* ORI PARM='NODYNAM,LIB,RENT,APOST,LIB,CICS(''SP''),SQL,SIZE(4000K)'
+//* V4 PARM='NODYNAM,LIB,RENT,APOST,LIB,CICS(''SP''),SQL,SIZE(4000K),
+//*             SOURCE,LIST,XREF,MAP'
+// PARM='TEST,NODYNAM,LIB,RENT,APOST,LIB,CICS(''SP''),SQL,SIZE(4000K)'
+//STEPLIB  DD DSN=&COBHLQ..SIGYCOMP,DISP=SHR
+//         DD DSN=&CICSHLQ..SDFHLOAD,DISP=SHR
+//*         DD DSN=&DSNAHLQ..SDSNEXIT,DISP=SHR
+//         DD DSN=&DB2HLQ..SDSNEXIT,DISP=SHR
+//*         DD DSN=&DSNAHLQ..RUNLIB.LOAD,DISP=SHR
+//         DD DSN=&DB2HLQ..SDSNLOAD,DISP=SHR
+//SYSLIB   DD DSN=&CICSHLQ..SDFHCOB,DISP=SHR
+//         DD DSN=&CICSHLQ..SDFHMAC,DISP=SHR
+//         DD DSN=&CICSHLQ..SDFHSAMP,DISP=SHR
+//         DD DSN=&DB2HLQ..SDSNSAMP,DISP=SHR
+//         DD DSN=&DB2HLQ..SDSNMACS,DISP=SHR
+//         DD DSN=&HLQ..ZMOBILE.COPYLIB,DISP=SHR
+//SYSIN    DD DISP=SHR,DSN=&HLQ..ZMOBILE.COBOL(&MEM)
+//DBRMLIB  DD DSN=&HLQ..ZMOBILE.DBRM(&MEM),DISP=SHR
+//SYSLIN   DD DSN=&&LOADSET,DISP=(NEW,PASS),UNIT=SYSDA,
+//         SPACE=(TRK,(20,10))
+//SYSADATA DD DUMMY
+//SYSMDECK DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT1   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT2   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT3   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT4   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT5   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT6   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT7   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT8   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT9   DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT10  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT11  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT12  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT13  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT14  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSUT15  DD UNIT=SYSDA,SPACE=(460,(350,100))
+//SYSPRINT DD SYSOUT=*
+//*-------------------------------------------------------------------*
+//*  REBLOCK DFHEILIA, FOR USE BY THE LINKEDIT STEP                   *
+//*-------------------------------------------------------------------*
+//*
+//COPYLINK EXEC PGM=IEBGENER,COND=(7,LT,COBL)
+//SYSUT1   DD DISP=SHR,DSN=&CICSHLQ..SDFHCOB(DFHEILIC)
+//SYSUT2   DD DISP=(NEW,PASS),DSN=&&COPYLINK,
+//            DCB=(LRECL=80,BLKSIZE=3120,RECFM=FB),
+//            UNIT=SYSDA,SPACE=(CYL,(1,1))
+//SYSPRINT DD DUMMY
+//SYSIN    DD DUMMY
+//*-------------------------------------------------------------------*
+//*  INVOKE THE MVS LINKAGE-EDITOR PROGRAM                            *
+//*-------------------------------------------------------------------*
+//*
+//LKED     EXEC PGM=HEWL,COND=(7,LT,COBL),
+//  PARM='LIST,XREF,RENT,NAME=&MEM'
+//SYSLIB   DD DISP=SHR,DSN=&CICSHLQ..SDFHLOAD
+//         DD DSN=&DB2HLQ..SDSNLOAD,DISP=SHR
+//         DD DSN=CEE.SCEELKED,DISP=SHR
+//SYSLMOD  DD DISP=SHR,DSN=RLAM.ZUNIT.ZMOBILE.LOAD(&MEM)
+//SYSUT1   DD UNIT=SYSDA,DCB=BLKSIZE=1024,
+//            SPACE=(CYL,(1,1))
+//SYSPRINT DD SYSOUT=*
+//SYSLIN   DD DISP=(OLD,DELETE),DSN=&&COPYLINK
+//         DD DISP=(OLD,DELETE),DSN=&&LOADSET
+//         DD DISP=SHR,DSN=&HLQ..ZMOBILE.JCL(LINKPARM)
+//         PEND
+//*
+//*common programs
+//HCAZMENU EXEC DB2PROC,MEM=HCAZMENU
+//HCAZERRS EXEC DB2PROC,MEM=HCAZERRS
+//*patient inquire, add
+//HCP1BI01 EXEC DB2PROC,MEM=HCP1BI01
+//HCP1BA01 EXEC DB2PROC,MEM=HCP1BA01
+//HCP1PL01 EXEC DB2PROC,MEM=HCP1PL01
+//HCIPDB01 EXEC DB2PROC,MEM=HCIPDB01
+//HCAPDB01 EXEC DB2PROC,MEM=HCAPDB01
+//HCAPDB02 EXEC DB2PROC,MEM=HCAPDB02
+//HCPRESTW EXEC DB2PROC,MEM=HCPRESTW
+//*medications inquire
+//HCM1BI01 EXEC DB2PROC,MEM=HCM1BI01
+//HCM1PL01 EXEC DB2PROC,MEM=HCM1PL01
+//HCIMDB01 EXEC DB2PROC,MEM=HCIMDB01
+//HCMRESTW EXEC DB2PROC,MEM=HCMRESTW
+//*medication add
+//HCMABA01 EXEC DB2PROC,MEM=HCMABA01
+//HCMAPL01 EXEC DB2PROC,MEM=HCMAPL01
+//HCMADB01 EXEC DB2PROC,MEM=HCMADB01
+//HCMADB02 EXEC DB2PROC,MEM=HCMADB02
+//*patient visit
+//HCV1PL01 EXEC DB2PROC,MEM=HCV1PL01
+//HCV1BI01 EXEC DB2PROC,MEM=HCV1BI01
+//HCV1BA01 EXEC DB2PROC,MEM=HCV1BA01
+//HCIVDB01 EXEC DB2PROC,MEM=HCIVDB01
+//HCAVDB01 EXEC DB2PROC,MEM=HCAVDB01
+//*threshold inquire, add
+//HCITDB01 EXEC DB2PROC,MEM=HCITDB01
+//HCATDB01 EXEC DB2PROC,MEM=HCATDB01
+//HCT1BA01 EXEC DB2PROC,MEM=HCT1BA01
+//HCT1BI01 EXEC DB2PROC,MEM=HCT1BI01
+//HCT1PL01 EXEC DB2PROC,MEM=HCT1PL01
+//HCTRESTW EXEC DB2PROC,MEM=HCTRESTW
